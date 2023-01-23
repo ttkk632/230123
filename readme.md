@@ -1,2 +1,2 @@
     #230123 update
-    I guess you guys aren’t ready for that yet. But your kids are gonna love it.
+    If Kira gets caught, he is evil. If Kira rules the world, he is justice.
